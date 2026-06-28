@@ -1,4 +1,4 @@
-# 
+# أصلي Icecream PDF Editor قوالب لـ Mac OS | VIP Icecream PDF Editor قوالب لـ PC Windows. مع حساب الضريبة و فحص الأخطاء — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
